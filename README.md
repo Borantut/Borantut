@@ -1,0 +1,2 @@
+- 👋 Merhaba.adım @Borantut
+- 👀  Şu anda python öğreniyorum 
